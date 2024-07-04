@@ -1,2 +1,0 @@
-# WEIFANGXIA.github.io
- website
